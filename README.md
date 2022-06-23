@@ -8,3 +8,4 @@
 
 # KONTAK
     WA : 082157339086
+    E-mail : khamalpradita@gmail.com
